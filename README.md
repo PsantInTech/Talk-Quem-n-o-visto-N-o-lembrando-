@@ -13,3 +13,5 @@ https://www.linkedin.com/in/priscila-araujo-santos/
 
 Instagram: 
 https://www.instagram.com/psantintech/
+
+*************************************😎🙈👩🏻‍💻🧠**************************************
